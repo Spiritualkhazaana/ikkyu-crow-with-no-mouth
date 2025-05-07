@@ -1,1 +1,5 @@
-# ikkyu-crow-with-no-mouth
+# *Ikkyu: Crow With No Mouth: A Journey into the Wild Wisdom of a 15th-Century Zen Master*
+
+# *Stephen Berg’s “Ikkyu: Crow With No Mouth” is not merely a biography; it’s an intimate and visceral encounter with one of Zen Buddhism’s most unconventional and profoundly insightful figures. Ikkyu Sojun (1394-1481) was a poet, artist, iconoclast, and a Zen master whose life defied easy categorization. Berg’s work, through a masterful blend of translation, interpretation, and biographical narrative, cracks open the often-impenetrable shell of historical reverence, revealing a human being in all his contradictions: enlightened yet earthy, disciplined yet libertine, fiercely independent yet deeply compassionate. This comprehensive exploration delves into the intricate layers of Berg’s book, dissecting its sections, illuminating Ikkyu’s multifaceted life, and uncovering the enduring message woven throughout his poetry and actions.*
+
+[More details…](https://spiritualkhazaana.com/ikkyu-crow-with-no-mouth-15c-zen-master/)
